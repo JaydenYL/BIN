@@ -1,4 +1,6 @@
-# BIN
+# 🗑
+<br>
+
 BIN FOR TRASH, NOT BINARY
 
 <br><br>
